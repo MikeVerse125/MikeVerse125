@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently studying
+Information Technology Major | AI Enthusiast | RMIT University | Class of 2025 | Aspiring AI Engineer
 
 
 ## 🌐 Socials:
